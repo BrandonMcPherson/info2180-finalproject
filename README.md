@@ -5,5 +5,5 @@ Group Members are:
 Ikobi Lynch: 620139035
 Sheamar White: 620146864
 Trishanna Ford: 620147893
-Sabrina Harvyey:
+Sabrina Harvyey: 620138823 
 Brandon Mcpherson: 620130245
